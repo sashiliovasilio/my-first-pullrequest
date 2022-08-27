@@ -8,4 +8,4 @@ Can you feel me?
 
 «Если человек не нашёл, за что может умереть, он не способен жить». Мартин Лютер Кинг
 
-This is a part of history already.
+This is a part of history already
